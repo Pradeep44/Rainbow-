@@ -1,2 +1,2 @@
 # Rainbow-
-This is about the song.
+This is about the song of the rainbow.
